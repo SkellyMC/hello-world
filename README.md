@@ -2,4 +2,4 @@
 
 Good Evening Ladies and Gentleman!
 
-I am SkellyMC, I'm a huge fan of computers and technology itself. I've been using my computer since 4 or 5 years old. I love gaming as a hobby and working by researching and doing things about programming, hacking(The good type). I see programming or technology as a very huge, yet outstanding part of my life and I want to use it as a vision or career in the future.
+I am Skelly, I'm a huge fan of computers and technology itself. I've been using computers since 4 or 5 years old. I love socializing as a hobby and working, researching, and learning how to program. I see programming or technology as a very huge, yet outstanding part of life and a part of our future and I want to be a part of such a huge evolvement and evolution of our economy, society and even lifestyles as well.
